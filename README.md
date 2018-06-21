@@ -26,4 +26,4 @@
 * 李在福追球系列 [1 李在福羽毛球教学《追球》 9个系列完整视频（景超推荐经典收藏）_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/av12742296/)
 * 拉斯姆森羽毛球教学 [拉斯姆森羽毛球教学视频_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/av16882177/)
 * 赵剑华和肖杰专家把脉系列 [央视羽毛球专家把脉 肖杰 羽球天王 赵建华 央视_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/av12731017/)
-
+* 盖德羽毛球技术训练
