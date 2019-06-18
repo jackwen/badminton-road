@@ -29,6 +29,7 @@
 * 拉斯姆森羽毛球教学 [拉斯姆森羽毛球教学视频_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/av16882177/)
 * 赵剑华和肖杰专家把脉系列 [央视羽毛球专家把脉 肖杰 羽球天王 赵建华 央视_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/av12731017/)
 * 盖德羽毛球技术训练[Peter Gade 皮特盖德 羽毛球技术训练](https://www.bilibili.com/video/av20457888?from=search&seid=744217267332074330)
+* 景超推荐经典收藏
 
 
 ## 基本路径
@@ -41,3 +42,7 @@
 * 接发球
 * 接杀球
 * 步伐
+
+## 油管视频
+
+
